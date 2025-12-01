@@ -44,7 +44,7 @@
 
 ## P.S. При необходимости могу выполнять работы с использованием иных средств (ниже будут указаны эти средства, а также к ним можно добавить 1С)
 
-<h3 align="left">Связаться со мной: shilkoaa@gmail.com, tg @LLIypuK26</h3>
+<h3 align="left">Связаться со мной: shilkoaa@gmail.com, aleksandarschilko@yandex.ru, tg @LLIypuK26</h3>
 <p align="left">
 </p>
 
